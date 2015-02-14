@@ -1,3 +1,3 @@
 # Happy Valentine's Day!
 
-I hope you have a happy balentine's day!
+I hope you have a happy valentine's day!
